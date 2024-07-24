@@ -2,7 +2,7 @@
 - 👀 eu gosto de jogar jogos
 - 🌱 eu to estudando 
 - 💞️ eu colaboro em colaborar
-- 📫 falando commigo
+- 📫 abcdefghijklmnopqrstuvwxyz
 - 😄 jose
 - ⚡ Fun fact: jose💣💣💣💣💣💣💣💣💣💣💣💣💣💣💣💣💣
 
